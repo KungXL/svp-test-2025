@@ -14,3 +14,7 @@
 13. Entrepreneurship
 14. Consulting
 15. TBD
+3. Design thinking
+4. Group project
+6. Föreläsning, "Interkollegialt samkväm"
+6. Förläsning 4
